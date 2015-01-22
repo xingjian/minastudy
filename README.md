@@ -1,0 +1,2 @@
+# minastudy
+minastudy
